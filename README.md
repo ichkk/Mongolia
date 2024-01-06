@@ -1,2 +1,7 @@
 # Mongolia
 hi babe's
+Naadam is the most widely watched festival among Mongols and is believed to have existed for centuries in one fashion or another. It has its origin in the activities, such as military parades and sporting competitions such as archery, horse riding and wrestling, that followed the celebration of various occasions, including weddings or spiritual gatherings. It later served as a way to train soldiers for battle and was also connected to Mongols' nomadic lifestyle. Mongolians practice their unwritten holiday rules that include a long song to start the holiday, then a Biyelgee dance. Traditional cuisine, or Khuushuur, is served around the Sports Stadium along with a special drink made of fermented horse milk (airag). The three games of wrestling, horse racing, and archery are recorded in the 13th-century book The Secret History of the Mongols. During the Qing dynasty's rule, Naadam became a festival officially held by sums.
+
+It began to be held annually in 1639 with a dance festival dedicated to the High Saint Zanabazar. In this festival of Shireet White Lake, Bokh Lama won in wrestling, and Bonkhor Donir's horse won the championship.
+
+In 1772, a great festival was held to worship Khentii mountain. It is called the Festival of Ten Governments. In 1912, the Ten Government Games, which used to be played with losing points, became an annual state game. Until the death of Bogd Khan in 1925, the Ten Government Festival became a state festival. Ten Government Games have been held 125 times.
